@@ -6,3 +6,6 @@ https://dakeelmi.ir/product/%da%a9%d8%aa%d8%a7%d8%a8-%d8%b5%d9%88%d8%aa%db%8c-%d
 
 [کتاب صوتی چهار میثاق](https://dakeelmi.ir/product/%da%a9%d8%aa%d8%a7%d8%a8-%d8%b5%d9%88%d8%aa%db%8c-4-%d9%85%db%8c%d8%ab%d8%a7%d9%82/)
 
+https://tinyurl.com/yagylep9
+
+https://tinyurl.com/ybhmmhgn
